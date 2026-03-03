@@ -90,3 +90,9 @@ Adjust staffing and inventory levels, particularly on Fridays, to efficiently ma
 
 ### 4. Controlled Product Testing
 Use Hell’s Kitchen and Astoria as pilot locations for launching premium or seasonal products before expanding to other branches.
+
+# Author & Contact
+
+**Kaml Mirza**  
+
+LinkedIn: www.linkedin.com/in/kaml-mirza-38223034a
